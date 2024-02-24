@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me discord Snayper_sanya#5248
 - 😄 Pronouns: ...
-- ⚡ Fun fact: i from Russia!!
+- ⚡ Fun fact: I am human!
 
 <!---
 Vasilyy228/Vasilyy228 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
